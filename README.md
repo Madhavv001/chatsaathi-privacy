@@ -19,4 +19,7 @@
 ## Contact Us
 For any privacy concerns, contact: madhavv.sharmaa2005@gmail.com
 
+
+To request account deletion, please email us at madhavv.sharmaa2005@gmail.com with the subject 'Account Deletion Request'."
+
 Last updated: April 2024
